@@ -5,7 +5,7 @@
 
 > **Free access to newly registered domain names updated daily** - 250K-400K new domain names every 24 hours
 
-**[Download Newly Registered Domain Names →](https://www.whoisextractor.in/newly-registered-domains-database-free/)**
+**[Download Newly Registered Domain Names →](https://www.whoisextractor.in/domains-database/daily-free/)**
 
 ## What's Included
 
@@ -17,6 +17,6 @@
 
 Perfect for domain monitoring, brand protection, and cybersecurity research.
 
-**[Get Free Access](https://www.whoisextractor.in/newly-registered-domains-database-free/)**
+**[Get Free Access](https://www.whoisextractor.in/domains-database/daily-free/)**
 
 **Keywords**: newly registered domain names, new domain registrations, daily domain names list
